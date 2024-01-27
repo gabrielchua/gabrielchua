@@ -1,1 +1,1 @@
-# [AI Events in Singapore 🔥](www.lu.ma/sg-ai?utm_source=gh)
+# [AI Events in Singapore 🔥](https://lu.ma/sg-ai?utm_source=gh)

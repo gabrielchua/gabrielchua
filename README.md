@@ -1,1 +1,1 @@
-[AI Events in Singapore 🔥](lu.ma/sg-ai)
+# [AI Events in Singapore 🔥](lu.ma/sg-ai)
